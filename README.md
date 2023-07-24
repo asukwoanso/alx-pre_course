@@ -1,1 +1,1 @@
-My first readme
+Asukwo Anso is a cool guy
